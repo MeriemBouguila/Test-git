@@ -1,2 +1,2 @@
 # Test-git
-Good life good choices 
+create a successful life 
