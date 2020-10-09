@@ -1,3 +1,2 @@
 # Test-git
-Respect 
-feel free and alive 
+Good life good choices 
